@@ -1,2 +1,2 @@
 # hello-world
-I only make discord bots help
+mom pick me up I only make discord bots help im scared
